@@ -1,0 +1,85 @@
+---
+description: "Recipe of Favorite Biscuits and gravy"
+title: "Recipe of Favorite Biscuits and gravy"
+slug: 1132-recipe-of-favorite-biscuits-and-gravy
+date: 2020-05-17T13:52:28.530Z
+image: https://img-global.cpcdn.com/recipes/5102789427462144/751x532cq70/biscuits-and-gravy-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5102789427462144/751x532cq70/biscuits-and-gravy-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5102789427462144/751x532cq70/biscuits-and-gravy-recipe-main-photo.jpg
+author: Rosalie Holland
+ratingvalue: 4
+reviewcount: 10
+recipeingredient:
+- "1 can flaky biscuits"
+- "1 packages jimmy dean sausage"
+- "1 salt and pepper"
+- "1 flour"
+- "1 milk"
+- "1 butter"
+- "1 packages bacon"
+- "1 bacon grease"
+recipeinstructions:
+- "Prepare biscuits according to the directions on the can."
+- "cook up bacon and save some of the grease in pan."
+- "in another large skillet cook up the sausage, do not drain grease."
+- "in a small bowl combine 1/2 cup flour with enough milk to make it creamy. add to the pan with cooked sausage. add enough milk to fill the pan up 3/4 full. add about 1/2 cup butter, keep whisking the gravy until it starts bubbling. then add flour and milk until you get the right thickness you desire. add salt and pepper to your taste."
+- "break up your biscuits and cover with sausage gravy and enjoy."
+categories:
+- Recipe
+tags:
+- biscuits
+- and
+- gravy
+
+katakunci: biscuits and gravy 
+nutrition: 152 calories
+recipecuisine: American
+preptime: "PT32M"
+cooktime: "PT47M"
+recipeyield: "1"
+recipecategory: Dinner
+
+---
+
+
+![Biscuits and gravy](https://img-global.cpcdn.com/recipes/5102789427462144/751x532cq70/biscuits-and-gravy-recipe-main-photo.jpg)
+
+Hey everyone, it is Jim, welcome to my recipe site. Today, I will show you a way to make a distinctive dish, biscuits and gravy. One of my favorites. For mine, I will make it a little bit tasty. This will be really delicious.
+
+Biscuits and gravy is one of the most popular of current trending foods in the world. It is appreciated by millions every day. It is easy, it is fast, it tastes yummy. They're nice and they look fantastic. Biscuits and gravy is something which I have loved my whole life.
+
+Reviews for: Photos of Easy Sausage Gravy and Biscuits. Savory Scones with Goat Cheese and Chives. Biscuits and Gravy - How to make the Best Biscuits and Sausage Gravy.
+
+
+To get started with this particular recipe, we have to first prepare a few ingredients. You can have biscuits and gravy using 8 ingredients and 5 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Biscuits and gravy:
+
+1. Make ready 1 can flaky biscuits
+1. Take 1 packages jimmy dean sausage
+1. Prepare 1 salt and pepper
+1. Prepare 1 flour
+1. Get 1 milk
+1. Make ready 1 butter
+1. Make ready 1 packages bacon
+1. Take 1 bacon grease
+
+
+On this page are a variety of different ways to make biscuits. I always seem to revert back to refrigerated biscuits, but they are getting rather pricey. Biscuits and sausage gravy became a distinguished dish after the American Revolutionary War during which there was a shortage of food and money. Biscuits and gravy is a Southern classic, and thankfully, you can prepare your own at home with Traditional buttermilk biscuits and sausage gravy take a little time and effort to make, but if you&#39;re. 
+
+<!--inarticleads2-->
+
+##### Steps to make Biscuits and gravy:
+
+1. Prepare biscuits according to the directions on the can.
+1. cook up bacon and save some of the grease in pan.
+1. in another large skillet cook up the sausage, do not drain grease.
+1. in a small bowl combine 1/2 cup flour with enough milk to make it creamy. add to the pan with cooked sausage. add enough milk to fill the pan up 3/4 full. add about 1/2 cup butter, keep whisking the gravy until it starts bubbling. then add flour and milk until you get the right thickness you desire. add salt and pepper to your taste.
+1. break up your biscuits and cover with sausage gravy and enjoy.
+
+
+This CLASSIC Biscuits And Gravy Recipe Is One Everyone Knows And Loves! Delicious Buttery Biscuits Smothered In A Homemade Sausage Gravy! While this biscuit and gravy recipe might at first seem pretty standard, there&#39;s a delicious secret We put a delightful twist on what you know as classic biscuits and gravy by sprinkling cooked ground. For the gravy: melt the butter in a saucepan, over medium heat. Biscuits and Gravy will put you in &#34;Breakfast Heaven.&#34; Biscuits and Gravy are not considered healthy by any means, but this is a good, hearty, stick-to-your-ribs Southern breakfast. 
+
+So that's going to wrap this up with this special food biscuits and gravy recipe. Thanks so much for your time. I'm confident you can make this at home. There's gonna be interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
